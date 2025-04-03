@@ -1,5 +1,13 @@
 # Redcliff_Editora
 
+ vieux amants
+velhos amantes
+Vizaman
+ 
+https://assessorialumos.com.br/isbn/
+C[odigos para Ficha Catalografica
+
+
 # Obra 111 resumos da Literatura Universal
 
 

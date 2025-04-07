@@ -5,7 +5,7 @@ velhos amantes
 Vizaman
  
 https://assessorialumos.com.br/isbn/
-C[odigos para Ficha Catalografica
+Codigos para Ficha Catalografica
 
 
 # Obra 111 resumos da Literatura Universal
@@ -17,7 +17,6 @@ Jornada ao Oeste	Wu Cheng'en	1592
 Frankenstein	Mary Shelley	1818
 O Engenhoso Fidalgo Dom Quixote de la Mancha	Miguel de Cervantes	1605 - 1615
 Epopeia de Gilgamesh	Desconhecido	Entre os séculos XXII e X a. C.
-
 05
 
 
@@ -26,13 +25,7 @@ A Revolução dos Bichos	George Orwell	1945
 1984	George Orwell	1949
 Romance dos Três Reinos	Luo Guanzhong	1321-1323
 Margem da Água	Shi Nai'an	1589
-
 10
-
-
-
-
-
 
 
 O Sol é Para Todos	Harper Lee	1960
@@ -40,10 +33,7 @@ Mahabharata	Vyasa	Século IV a.C.
 Genji Monogatari	Murasaki Shikibu	Antes de 1021
 Ilíada	Homero	Século VIII a.C.
 A Divina Comédia	Dante Alighieri	1308-1320
-
 15
-
-
 
 
 Panchatantra	Vishnu Sharma	300 a.C.
@@ -51,7 +41,6 @@ Em Busca do Tempo Perdido	Marcel Proust	1913-1927
 Morro dos Ventos Uivantes	Emily Brontë	1847
 Homem Invisível	Ralph Ellison	1952
 Moby Dick	Herman Melville	1851
-
 20
 
 
@@ -61,9 +50,7 @@ The True Story of Ah Q	Lu Xun	1921-1922
 Alice no País das Maravilhas	Lewis Carroll	1865
 Anna Karenina	Liev Tolstói	1873-1877
 Heart of Darkness	Joseph Conrad	1899
-
 25
-
 
 
 Édipo Rei	Sófocles	429 a.C.
@@ -71,19 +58,14 @@ Memórias Póstumas de Brás Cubas	Machado de Assis	1881
 Ramáiana (atribuído a Valmiki, século XI aC)	Valmiki	Século XI a.C.
 A Mão Esquerda da Escuridão	Ursula K. Le Guin	1969
 Metamorfoses	Ovídio	Século VIII
-
 30
-
-
 
 Um Dia na Vida de Ivan Denisovich	Aleksandr Solzhenitsyn	1962
 Canção de Mim Mesmo	Walt Whitman	1855
 As Aventuras de Huckleberry Finn	Mark Twain	1884
 As Aventuras de Tom Sawyer	Mark Twain	1876
 Toba Tek Singh	Saadat Hasan Manto	1955
-
 35
-
 
 
 A Montanha Mágica     Thomas Mann    1924
@@ -91,9 +73,7 @@ O Homem sem Qualidades, Robert Musil, 1930-1943
 O Som e a Fúria, William Faulkner, 1929
 Grande Sertão: Veredas (Guimarães Rosa, 1956)
 A Vida e as Opiniões do Cavalheiro Tristram Shandy (Laurence Sterne, 1759) 
-
 40
-
 
 
 As Viagens de Gulliver (Jonathan Swift, 1726)
@@ -101,9 +81,7 @@ Enquanto Agonizo (William Faulkner, 1930)
 A Morte de Virgílio (Hermann Broch, 1945)
 Finnegans Wake (James Joyce, 1939)
 Pedro Páramo (Juan Rulfo, 1955)
-
 45
-
 
 
 A Peste (Albert Camus, 1947)
@@ -111,9 +89,7 @@ O Estrangeiro, de Albert Camus
 Admirável Mundo Novo (Aldous Huxley, 1932)
 Fausto, de Johann Wolfgang von Goethe
 Doutor Fausto (Thomas Mann, 1947) 
-
 50
-
 
 
 Teogonia, de Hesíodo
@@ -121,7 +97,6 @@ Uma Temporada no Inferno, de Arthur Rimbaud
 A Comédia Humana, de Honoré de Balzac
 Grandes Esperanças, de Charles Dickens
 O Homem sem Qualidades, de Robert Musil
-
 55
 
 
@@ -131,9 +106,7 @@ Os Três Mosqueteiros, de Alexandre Dumas
 A Vida de Galileu, de Bertolt Brecht
 Paraíso Perdido, de John Milton
 Robinson Crusoé, de Daniel Defoe
-
 60
-
 
 
 A Metamorfose	Franz Kafka	1915
@@ -141,9 +114,7 @@ O Processo	Franz Kafka	1925
 Before the Law	Franz Kafka	1915
 O Castelo (Franz Kafka, 1926) 
 O Retrato de Dorian Gray, de Oscar Wilde
-
 65
-
 
 
 
@@ -152,7 +123,6 @@ Hamlet	William Shakespeare	1603
 Rei Lear	William Shakespeare	1608
 Otelo, de William Shakespeare
 Sonhos de uma noite de verão   William Shakespeare
-
 70
 
 
@@ -162,7 +132,6 @@ As Aventuras de Alice no País das Maravilhas, de Lewis Carroll
 A Náusea, de Jean-Paul Sartre
 A Consciência de Zeno, de Italo Svevo
 Longa Jornada Noite Adentro, de Eugene Gladstone O'Neill
-
 75
 
 
@@ -172,9 +141,7 @@ Um Bonde Chamado Desejo, de Tennessee Williams
 Ficções, de Jorge Luis Borges
 O Rinoceronte, de Eugène Ionesco
 A Morte de Virgílio, de Hermann Broch
-
 80
-
 
 
 Folhas de Relva, de Walt Whitman
@@ -182,9 +149,7 @@ Viagem ao Fim da Noite, de Louis-Ferdinand Céline
 As Vinhas da Ira, de John Steinbeck
 O Apanhador no Campo de Centeio, de J. D. Salinger
 Uma Passagem para a Índia, de Edward Morgan Forster
-
 85
-
 
 
 
@@ -193,9 +158,7 @@ O Lobo da Estepe, de Herman Hesse
 Demian de Herman Hesse
 As Cidades Invisíveis, de Italo Calvino
 Os Miseráveis, de Victor Hugo
-
 90
-
 
 
 Noite de Reis, de William Shakespeare
@@ -203,7 +166,6 @@ Otelo, de William Shakespeare
 Madame Bovary, de Gustave Flaubert
 Crime e Castigo, de Fiódor Dostoiévski
 Guerra e Paz, de Leon Tosltói
-
 95
 
 
@@ -212,9 +174,7 @@ Dom Casmurro, Machado de Assis (1899)
 Ulysses, de James Joyce
 Os Ensaios, de Michel de Montaigne
 O Som e a Fúria, de William Faulkner
-
 100
-
 
 
 Esperando Godot, de Samuel Beckett
@@ -222,7 +182,6 @@ A Tarde de um Fauno, de Stéphane Mallarmé
 O Livro das Mil e Uma Noites
 Mensagem, de Fernando Pessoa
 Os Moedeiros Falsos, de André Gide
-
 105
 
 
@@ -231,7 +190,6 @@ Cem Anos de Solidão, de Gabriel García Márquez
 O Jogo da Amarelinha, de Julio Cortázar
 Memórias de Adriano, de Marguerite Yourcenar
 Contos, de Hans Christian Andersen
-
 110
 
 

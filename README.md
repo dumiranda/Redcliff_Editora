@@ -2,6 +2,22 @@
 
 # Redcliff_Editora
 
+
+Richard Wincor - Sherlock Holmes in Tibet
+Post by 𝘗rincess 𝘵uvstarr on Mar 13, 2023 at 10:48am
+This is a book I found by accident. It seems very odd; from what I can gather, not having read it yet, it is a meditation on Buddhist philosophy, written in the form of a pamphlet by Sherlock Holmes.
+
+The pamphlet title is: NOTES ON THE TIBET EPISODE BY SHERLOCK HOLMES
+
+Only the first 47 pages are the pamphlet. Then we get extracts from the work of Bishop Berkeley, an idealist philosopher who believed there is no material universe outside of human perception, all objects are ideas in the mind. After that there are translations from the Tibetan Book of the Dead. Obviously the author sees in Bishop Berkeley's work parallels with Buddhist thought. Maybe Holmes explains them in the book.
+
+It seems a strange book, but I'll give it a go. At least I will learn something about Buddhist philosophy.
+Publisher:           New York, Weybright and Talley
+Publication Date: 1968
+Hardback:   137 pages
+
+
+
 Buddha dharma
 
 Kalyanamitta

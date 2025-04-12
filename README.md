@@ -2,6 +2,9 @@
 
 # Redcliff_Editora
 
+Eduardo Miranda -  Férias no Tibet: uma aventura no Mundo dos Mortos
+by Sherlock Holmes
+
 
 Richard Wincor - Sherlock Holmes in Tibet
 Post by 𝘗rincess 𝘵uvstarr on Mar 13, 2023 at 10:48am
@@ -17,10 +20,63 @@ Publication Date: 1968
 Hardback:   137 pages
 
 
+Sherlock Holmes no Tibete: Uma Jornada Filosófica e Mística
+
+O panfleto NOTES ON THE TIBET EPISODE BY SHERLOCK HOLMES (1968) é uma obra peculiar que mistura ficção sherlockiana, filosofia idealista e ensinamentos budistas. Publicado pela Weybright and Talley em Nova York, o livro tem apenas 137 páginas, mas sua estrutura é incomum:
+
+    As 47 primeiras páginas contêm o relato principal, supostamente narrando uma aventura de Sherlock Holmes no Tibete. Dado o histórico canônico de Holmes ter viajado para o Tibete durante seu "Grande Hiato" (o período entre sua aparente morte em Reichenbach e seu retorno em The Adventure of the Empty House), essa narrativa pode explorar esse interlúdio misterioso.
+
+    Extratos de George Berkeley, o filósofo idealista que argumentava que a realidade material não existe independentemente da percepção — tudo são "ideias na mente". Sua famosa máxima "esse est percipi" (ser é ser percebido) ecoa conceitos budistas sobre a ilusão da realidade material.
+
+    Traduções do Tibetan Book of the Dead (Bardo Thödol), um texto sagrado budista que descreve os estados intermediários entre a morte e o renascimento. Sua ênfase na natureza ilusória do mundo físico parece dialogar diretamente com o idealismo de Berkeley.
+
+Possíveis Temas e Conexões
+
+    Holmes como um Investigador da Realidade: Se o Holmes desta narrativa não está apenas resolvendo um crime, mas questionando a própria natureza da realidade, sua mente lógica pode confrontar as ideias de Berkeley e do budismo tibetano.
+
+    A Ilusão vs. a Dedução: O método dedutivo de Holmes, baseado em evidências materiais, pode ser desafiado por filosofias que negam a existência objetiva do mundo.
+
+    Misticismo e Razão: O Tibete, muitas vezes associado ao misticismo no imaginário ocidental, seria um cenário perfeito para Holmes enfrentar enigmas que transcendem a lógica convencional.
+
+Por Que Esse Livro é Estranho (e Fascinante)?
+
+A combinação de Sherlock Holmes, filosofia ocidental e ensinamentos budistas é inesperada, mas não totalmente sem sentido. Tanto Berkeley quanto o budismo questionam a natureza última da realidade, e Holmes, como um personagem obcecado pela percepção de detalhes, poderia ser um veículo interessante para explorar essas ideias.
+
+Se o autor (cujo nome não foi mencionado) realmente faz Holmes explicar essas conexões, o livro pode ser uma curiosa fusão de mistério, metafísica e espiritualidade.
+
+
+
+----
+
+The Yellow Peril! … The peace of the world is at stake.
+
+—Sax Rohmer 1913, The Insidious Dr. Fu Manchu
+
+Our inner lives are something we ignore at our own peril.
+
+—The 14th Dalai Lama Citation2011, 75, Beyond Religion: Ethics for the Whole World
+
+This essay is concerned with the contemporary convergence of Western and Eastern metaphysical paradigms as witnessed in and expressed through detective fiction written by Western writers, but with settings in, and influenced by, historically Buddhist cultures of East and Southeast Asia. The essay argues that the traditional Western detective fiction novel is symptomatic of a scientific-materialist mindset that has reached an existential dead end with its loss of faith in the possibility of self-transcendence, a mindset that has become trapped in a deterministic world in which evil and violence, perpetually arising, inducing guilt, require perpetual dissipation and solution. In their various manners, each of the three novelists discussed in the essay puts forward the Buddhistically endorsed proposition that the only and ultimate solution to such a grievous existential condition is to fundamentally alter one's perception by acknowledging the living potential of self-transcendence and cultivating enlightenment.
+
+
+
+----
+
+Sherlock Holmes is often oversimplified as a secular modern professional, with a remorselessly scientific outlook. This hypothesis overlooks late-nineteenth-century English society’s pursuit of new social possibilities for spiritualism, following challenges from Darwinist biological determinism to orthodox biblical mythology and morality. If we see Holmes in a default empirical scientism affiliated to imperial ideologies, we will remain blind to the effects of multiple countercultural and spiritual tones that also underpin the “science of deduction.” Holmes’ methods were subliminally informed by theosophy, as Doyle gleaned much of his spiritual knowledge from first- or second-hand readings on Blavatsky. Thus, Vedantic and Buddhist philosophy find inadvertent—but not coincidental—traces in Holmes through theosophy. An intellectual offspring of the trinity of Darwin, Huxley, and Tyndall, Holmes was also a child of Blavatsky’s occult philosophy. Adopting a decolonial praxis, this paper argues that comparisons between the materialistic principles of Darwin, Huxley, and Tyndall, on the one hand, and Holmes on the other, are as useful as comparing the detective’s work to Blavatsky’s theosophy.
+
+
+----------------
+
+https://www.sherlockian.net/investigating/spiritualizationexplained/
+http://www.sherlock.on.net/WebsitePhotosAttachments/PassengersLog_Montpellier_PhotosAttach/SherlockHolmesTibet.pdf
+https://muse.jhu.edu/article/694138
+
+
+
 
 Buddha dharma
 
-Kalyanamitta
+Kalyanamitta Miranda
 Divulgação do Budismo
 
 Dominio Publico

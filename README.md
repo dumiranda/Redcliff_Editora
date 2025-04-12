@@ -130,12 +130,26 @@ https://muse.jhu.edu/article/694138
 Buddha dharma
 
 Kalyanamitta Miranda
+Amigo Espiritual em sânscrito
+
+Ti Mug Pa Miranda, Timugpa Miranda
+Ignorante, estúpido, idiota em tibetano
+
+Ajna Miranda
+Ignorante em sânscrito
+
+Timugpa Miranda
+Ajna Miranda
+
+
+
 Divulgação do Budismo
 
 Dominio Publico
 
 Bibliotecas
 Escolas publicas
+
 
 
 

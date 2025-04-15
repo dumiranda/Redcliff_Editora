@@ -2,8 +2,592 @@
 
 # Redcliff_Editora
 
+In The Year 2525 - COVID Massive LOCKDOWN- music video clip in 2020
+https://www.youtube.com/watch?v=JNbUUSuiEho
+
+
+
+Ufologia em 2024: As Últimas Descobertas e os Grandes Desafios
+Introdução
+
+A Ufologia, estudo de Objetos Voadores Não Identificados (OVNIs/UAPs – Unidentified Aerial Phenomena), vive um momento histórico. Com o avanço da tecnologia, a abertura governamental e o interesse científico, o tema saiu das margens da conspiração e ganhou espaço em discussões sérias. No entanto, desafios como desinformação, falta de transparência e estigma ainda persistem.
+1. As Novas Descobertas em Ufologia
+a) Relatórios Oficiais e Revelações Governamentais
+
+Desde 2017, quando o The New York Times revelou o Programa Avançado de Identificação de Ameaças Aeroespaciais (AATIP) dos EUA, governos vêm admitindo a existência de fenômenos aéreos inexplicáveis.
+
+    Relatório ODNI (2021 e 2023) – O Escritório do Diretor de Inteligência Nacional dos EUA divulgou que, de 144 casos analisados, apenas um foi explicado. O resto permanece sem resposta (ODNI, 2021).
+
+    NASA e o Painel UAP (2023) – A NASA admitiu estudar UAPs, mas destacou a falta de dados consistentes para conclusões definitivas (NASA, 2023).
+
+b) Casos Recentes e Avistamentos
+
+    UAPs no Congresso dos EUA (2023) – O ex-oficial de inteligência David Grusch testemunhou sob juramento que os EUA possuem "naves não-humanas e corpos de pilotos", acusando um acobertamento (The Debrief, 2023).
+
+    Objetos sobre a América Latina – Países como Brasil, México e Chile registraram aumento em relatos de OVNIs, incluindo o famoso caso do "UFO de Varginha" (1996), que voltou a ser discutido após novas testemunhas.
+
+c) A Ciência Entra no Debate
+
+Universidades e cientistas estão se envolvendo mais:
+
+    Projeto Galileo (Harvard) – Liderado pelo astrônomo Avi Loeb, busca evidências de tecnologia extraterrestre na Terra e no espaço.
+
+    Estudos de Metabólitos Anômalos – Pesquisadores investigam materiais supostamente de origem não-terrestre, como o "elemento 115" citado por Bob Lazar.
+
+2. Os Grandes Desafios da Ufologia Hoje
+a) Desinformação e Teorias da Conspiração
+
+A popularização do tema levou a um aumento de fake news e relatos não verificados. O físico Michio Kaku alerta:
+
+    "Precisamos separar ciência de ficção. Nem todo OVNI é extraterrestre, mas alguns merecem investigação séria."
+
+b) Falta de Transparência Governamental
+
+Apesar dos avanços, muitos documentos ainda são classificados. O jornalista Leslie Kean afirma:
+
+    "Os governos têm mais dados do que divulgam. O desafio é vencer o segredo institucional."
+
+c) Estigma Científico
+
+A Ufologia ainda sofre resistência na academia. O astrobiólogo Carl Sagan já dizia:
+
+    "Alegações extraordinárias exigem evidências extraordinárias."
+    Porém, hoje, pesquisadores como Garry Nolan (Stanford) defendem:
+    "Ignorar dados anômalos é anticientífico."
+
+3. O Futuro da Ufologia
+
+    Novas Tecnologias de Monitoramento – Satélites e IA podem ajudar a identificar UAPs com mais precisão.
+
+    Leis de Transparência – O UAP Disclosure Act (EUA, 2023) busca liberar mais arquivos sigilosos.
+
+    Colaboração Global – Países como França (GEIPAN) e Canadá já têm programas abertos de investigação.
+
+Conclusão
+
+A Ufologia está em transição: de um campo marginalizado para uma área de estudo legítima. Ainda há muito ceticismo, mas as evidências acumuladas exigem investigação séria. Como disse Jacques Vallée, pioneiro da pesquisa ufológica:
+
+    "O fenômeno OVNI é real, mas sua natureza ainda é um mistério. Cabe à ciência decifrá-lo."
+
+Referências:
+
+    ODNI. (2021). Preliminary Assessment: Unidentified Aerial Phenomena.
+
+    NASA. (2023). UAP Independent Study Team Report.
+
+    The Debrief. (2023). "Whistleblower Claims US Has Intact Non-Human Craft".
+
+🚀 O que vem a seguir? Fique atento aos desenvolvimentos – 2024 promete mais revelações! 👽
+
+(Quer explorar algum ponto específico com mais detalhes? Posso adaptar o artigo!)
+Fazer resumo de o Alienista
+Resumo de "O Alienista" (Machado de Assis)
+
+Autor: Machado de Assis
+Publicação: 1882 (como parte de "Papéis Avulsos")
+Gênero: Conto/Novela (Realismo/Sátira)
+Enredo Principal
+
+A história se passa na cidade fictícia de Itaguaí, no século XIX, e acompanha o renomado médico Simão Bacamarte, que decide fundar um manicômio chamado "Casa Verde" para estudar e tratar doenças mentais.
+Pontos-chave:
+
+    A Missão Científica de Bacamarte
+
+        Ele inicia seus estudos com critérios rígidos, internando pessoas consideradas "loucas".
+
+        Com o tempo, seus diagnósticos se tornam cada vez mais subjetivos, levando à internação de indivíduos por comportamentos comuns (como paixão excessiva ou tristeza).
+
+    O Crescimento da Casa Verde
+
+        A população de Itaguaí fica alarmada com o aumento de internações, incluindo figuras importantes da cidade.
+
+        Uma revolta popular tenta fechar o manicômio, mas Bacamarte os convence com argumentos "científicos".
+
+    A Grande Virada
+
+        Após analisar estatísticas, Bacamarte conclui que a verdadeira loucura está naqueles que ele considerava sãos (os moderados).
+
+        Ele liberta os internos e prende os "cidadãos normais", incluindo o barbeiro Porfírio (que liderou a revolta).
+
+    O Fim Iônico
+
+        Bacamarte encerra seu estudo declarando que a sanidade perfeita não existe e se interna na Casa Verde, tornando-se seu último paciente.
+
+Temas Principais
+
+    A Ciência como Poder Arbitrário – Bacamarte representa a arrogância científica que classifica a loucura de forma autoritária.
+
+    A Falsa Razão – Machado critica a ideia de que a ciência é sempre neutra e objetiva.
+
+    A Sociedade e a Normatização – A história satiriza como a sociedade define "normalidade" e marginaliza quem foge dela.
+
+Frases Marcantes
+
+    "A ciência é a verdade; mas a verdade nem sempre é a ciência."
+
+    "A loucura, era a regra; a sabedoria, exceção."
+
+Conclusão
+
+"O Alienista" é uma crítica mordaz ao autoritarismo científico, à hipocrisia social e à loucura disfarçada de razão. Machado de Assis usa o humor e a ironia para questionar quem realmente são os "loucos" em uma sociedade cheia de contradições.
+
+🔍 Leitura Recomendada: Se gostou, explore outros contos machadianos como "O Espelho" ou "A Cartomante" para mais análises psicológicas e sociais.
+Analise a letra de outo de tolo de raul Seixas e relacione com ufologia
+Análise da Letra de "Ouro de Tolo" (Raul Seixas) e sua Relação com a Ufologia
+
+Música: Ouro de Tolo (1973) – Álbum: Krig-Ha, Bandolo!
+Autor: Raul Seixas e Paulo Coelho
+1. A Letra e seu Contexto
+
+A música é uma crítica à busca por riquezas materiais e convenções sociais, usando a metáfora do "ouro de tolo" (pirita, um mineral que parece ouro, mas não tem valor real). Raul contrasta essa ilusão com a liberdade de ser "metamorfose ambulante" – alguém em constante transformação.
+Trechos-chave:
+
+    "Eu prefiro ser / Essa metamorfose ambulante / Do que ter aquela velha opinião formada sobre tudo"
+
+    "Eu vou desencanar / E pegar estrada / Vou me livrar desse ouro de tolo / Que me deixou / Com os pés no chão"
+
+2. Conexão com a Ufologia e o Pensamento de Raul Seixas
+a) Libertação do Sistema e a Busca por Outras Realidades
+
+Raul frequentemente abordava temas como viagens interdimensionais, vida extraterrestre e expansão da consciência. Em Ouro de Tolo, a ideia de "pegar estrada" pode simbolizar:
+
+    Uma viagem cósmica (como em "S.O.S. UFO" ou "Eu Sou Egoísta").
+
+    A rejeição ao materialismo (o "ouro de tolo" como metáfora das ilusões humanas, enquanto o "verdadeiro ouro" estaria em outras dimensões ou planetas).
+
+b) Metamorfose e Identidade Extraterrestre
+
+A "metamorfose ambulante" remete à:
+
+    Mudança de estado de consciência (como em experiências de contato com ETs ou viagens astrais).
+
+    A ideia de Raul como um "alienígena" – ele mesmo brincava com essa imagem ("Eu vim de outro planeta" em Eu Sou Egoísta).
+
+c) Crítica à Ciência Convencional
+
+Assim como a ufologia desafia a visão tradicional da ciência, Raul critica o conformismo:
+
+    "Ter aquela velha opinião formada sobre tudo" → alusão ao ceticismo rígido que rejeita fenômenos inexplicáveis (como UFOs).
+
+    O "ouro de tolo" pode representar a ciência materialista que ignora mistérios cósmicos.
+
+3. Paralelos com Ideias Ufológicas
+
+    Viagem Interdimensional
+
+        Raul via a música como um "disco voador" (em Aluga-se), e Ouro de Tolo fala de escapar da gravidade do mundo material – assim como relatos de abduções ou contatos com ETs.
+
+    Contato com Inteligências Superiores
+
+        A letra ecoa a noção de que a verdadeira sabedoria está além da Terra (como em teorias ufológicas sobre civilizações avançadas).
+
+    Despertar da Consciência
+
+        A ufologia muitas vezes fala em "expansão mental" pós-contato com ETs – algo que se alinha com a metamorfose proposta por Raul.
+
+4. Conclusão: Raul, o "ET Filosófico"
+
+Ouro de Tolo não menciona UFOs diretamente, mas sua mensagem de libertação e transformação se conecta com:
+
+    A rejeição ao sistema (como ufólogos que desafiam a narrativa oficial).
+
+    A busca por verdades cósmicas (a ideia de que "o ouro real" está além da Terra).
+
+Raul, em suas outras músicas, deixa claro seu fascínio por vida extraterrestre, mas aqui ele fala simbólica e filosoficamente – como um "ET da mente" que nos convida a sair da caverna do materialismo.
+
+🎶 Frase Final:
+"Vou me livrar desse ouro de tolo" → Talvez o maior "disco voador" seja a própria consciência libertada. 👽✨
+
+OBS: Se quiser explorar mais, veja também "S.O.S. UFO" e "A Maçã", onde Raul aborda UFOs de forma mais explícita!
+Continue
+Raul Seixas e a Ufologia: A Metamorfose Ambulante do Pensamento Extraterrestre
+
+A conexão entre Ouro de Tolo e a ufologia vai além de uma simples metáfora – ela revela a filosofia cósmica de Raul Seixas, onde a libertação da mente e o contato com o "desconhecido" se entrelaçam. Vamos aprofundar essa análise:
+5. A Alquimia do "Ouro Verdadeiro": Ufologia e Espiritualidade
+
+Raul não separava ciência de misticismo. Quando fala em "ouro de tolo", pode estar criticando tanto o materialismo quanto a ufologia superficial – aquela que busca apenas naves e provas físicas, sem questionar a transformação interior que o contato com o fenômeno provoca.
+
+    Paralelo com Jacques Vallée: O cientista francês defende que os UFOs são um "sistema de controle" que modifica nossa consciência – assim como Raul propõe a metamorfose.
+
+    Trecho da música: "Eu vou desencanar e pegar estrada" → Pode ser lido como uma abdução voluntária, onde o "viajante" (Raul) escolhe se libertar.
+
+6. O "Pé no Chão" vs. Os "Olhos no Céu"
+
+A ironia de "me deixou com os pés no chão" contrasta com:
+
+    A imagem clássica do ufólogo: sempre de olho no céu, buscando respostas fora da Terra.
+
+    A proposta de Raul: O verdadeiro "ouro" está na jornada interior (como nas experiências de contatados que falam em expansão da consciência).
+
+Exemplo real:
+
+    O caso de George Adamski (contatado dos anos 50) dizia que os ETs o ensinaram sobre "paz cósmica" – uma ideia próxima à metamorfose ambulante de Raul.
+
+7. A Casa Verde de Raul Seixas: Loucura ou Hiperconsciência?
+
+Em O Alienista (Machado de Assis), a loucura é uma questão de perspectiva. Raul inverte isso:
+
+    Os "sãos" são os verdadeiros loucos: presos ao "ouro de tolo" (crenças limitantes).
+
+    Os "alienígenas" de Raul: Aqueles que, como ele, se metamorfoseiam e enxergam além (como os "Star Seeds" da cultura ufológica moderna).
+
+Dados atuais:
+
+    Em 2023, o Pentágono admitiu que alguns UAPs têm comportamentos que desafiam as leis da física – algo que Raul celebraria como prova de que "a verdade é lá fora" (e dentro de nós).
+
+8. Conclusão Final: O Legado Extraterrestre de Raul
+
+Ouro de Tolo é um manifesto ufológico disfarçado de rock. Nele, Raul Seixas nos convida a:
+
+    Rejeitar o "ouro falso" (as verdades impostas).
+
+    Abraçar a metamorfose (como um contatado que se transforma após ver um UFO).
+
+    Pegar a estrada cósmica – seja em naves ou na mente.
+
+
+
+    
+Em Português (Brasil):
+
+    Raul Seixas – "Eu Sou Egoísta" (trecho: "Eu vim de outro planeta")
+    Os Mutantes – "A Hora e a Vez do Cabelo Nascer" (influência psicodélica e cósmica)
+    Titãs – "Flores" (trecho: "Será que Deus é um ET?")
+    Sepultura – "The Vatican" (menção a conspirações alienígenas)
+    O Rappa – "Reza Vela" (temas cósmicos e existenciais)
+    Zé Ramalho – "Avôhai" (letras com referências a mistérios do universo)
+    Júpiter Maçã – "UFO em Montevidéu" (rock psicodélico sobre discos voadores)
+    Rita Lee – "Mania de Você" (versão ao vivo com introdução sobre ETs)
+    Legião Urbana – "Faroeste Caboclo" (trecho: "E o ET de Varginha") (referência indireta)
+    Chico Science & Nação Zumbi – "A Cidade" (metáforas futuristas e cósmicas)
+
+
+    Ufologia em 2024: As Últimas Descobertas e os Grandes Desafios
+Introdução
+
+A Ufologia, estudo de Objetos Voadores Não Identificados (OVNIs/UAPs – Unidentified Aerial Phenomena), vive um momento histórico. Com o avanço da tecnologia, a abertura governamental e o interesse científico, o tema saiu das margens da conspiração e ganhou espaço em discussões sérias. No entanto, desafios como desinformação, falta de transparência e estigma ainda persistem.
+1. As Novas Descobertas em Ufologia
+a) Relatórios Oficiais e Revelações Governamentais
+
+Desde 2017, quando o The New York Times revelou o Programa Avançado de Identificação de Ameaças Aeroespaciais (AATIP) dos EUA, governos vêm admitindo a existência de fenômenos aéreos inexplicáveis.
+
+    Relatório ODNI (2021 e 2023) – O Escritório do Diretor de Inteligência Nacional dos EUA divulgou que, de 144 casos analisados, apenas um foi explicado. O resto permanece sem resposta (ODNI, 2021).
+
+    NASA e o Painel UAP (2023) – A NASA admitiu estudar UAPs, mas destacou a falta de dados consistentes para conclusões definitivas (NASA, 2023).
+
+b) Casos Recentes e Avistamentos
+
+    UAPs no Congresso dos EUA (2023) – O ex-oficial de inteligência David Grusch testemunhou sob juramento que os EUA possuem "naves não-humanas e corpos de pilotos", acusando um acobertamento (The Debrief, 2023).
+
+    Objetos sobre a América Latina – Países como Brasil, México e Chile registraram aumento em relatos de OVNIs, incluindo o famoso caso do "UFO de Varginha" (1996), que voltou a ser discutido após novas testemunhas.
+
+c) A Ciência Entra no Debate
+
+Universidades e cientistas estão se envolvendo mais:
+
+    Projeto Galileo (Harvard) – Liderado pelo astrônomo Avi Loeb, busca evidências de tecnologia extraterrestre na Terra e no espaço.
+
+    Estudos de Metabólitos Anômalos – Pesquisadores investigam materiais supostamente de origem não-terrestre, como o "elemento 115" citado por Bob Lazar.
+
+2. Os Grandes Desafios da Ufologia Hoje
+a) Desinformação e Teorias da Conspiração
+
+A popularização do tema levou a um aumento de fake news e relatos não verificados. O físico Michio Kaku alerta:
+
+    "Precisamos separar ciência de ficção. Nem todo OVNI é extraterrestre, mas alguns merecem investigação séria."
+
+b) Falta de Transparência Governamental
+
+Apesar dos avanços, muitos documentos ainda são classificados. O jornalista Leslie Kean afirma:
+
+    "Os governos têm mais dados do que divulgam. O desafio é vencer o segredo institucional."
+
+c) Estigma Científico
+
+A Ufologia ainda sofre resistência na academia. O astrobiólogo Carl Sagan já dizia:
+
+    "Alegações extraordinárias exigem evidências extraordinárias."
+    Porém, hoje, pesquisadores como Garry Nolan (Stanford) defendem:
+    "Ignorar dados anômalos é anticientífico."
+
+3. O Futuro da Ufologia
+
+    Novas Tecnologias de Monitoramento – Satélites e IA podem ajudar a identificar UAPs com mais precisão.
+
+    Leis de Transparência – O UAP Disclosure Act (EUA, 2023) busca liberar mais arquivos sigilosos.
+
+    Colaboração Global – Países como França (GEIPAN) e Canadá já têm programas abertos de investigação.
+
+Conclusão
+
+A Ufologia está em transição: de um campo marginalizado para uma área de estudo legítima. Ainda há muito ceticismo, mas as evidências acumuladas exigem investigação séria. Como disse Jacques Vallée, pioneiro da pesquisa ufológica:
+
+    "O fenômeno OVNI é real, mas sua natureza ainda é um mistério. Cabe à ciência decifrá-lo."
+
+Referências:
+
+    ODNI. (2021). Preliminary Assessment: Unidentified Aerial Phenomena.
+
+    NASA. (2023). UAP Independent Study Team Report.
+
+    The Debrief. (2023). "Whistleblower Claims US Has Intact Non-Human Craft".
+
+🚀 O que vem a seguir? Fique atento aos desenvolvimentos – 2024 promete mais revelações! 👽
+
+(Quer explorar algum ponto específico com mais detalhes? Posso adaptar o artigo!)
+Fazer resumo de o Alienista
+Resumo de "O Alienista" (Machado de Assis)
+
+Autor: Machado de Assis
+Publicação: 1882 (como parte de "Papéis Avulsos")
+Gênero: Conto/Novela (Realismo/Sátira)
+Enredo Principal
+
+A história se passa na cidade fictícia de Itaguaí, no século XIX, e acompanha o renomado médico Simão Bacamarte, que decide fundar um manicômio chamado "Casa Verde" para estudar e tratar doenças mentais.
+Pontos-chave:
+
+    A Missão Científica de Bacamarte
+
+        Ele inicia seus estudos com critérios rígidos, internando pessoas consideradas "loucas".
+
+        Com o tempo, seus diagnósticos se tornam cada vez mais subjetivos, levando à internação de indivíduos por comportamentos comuns (como paixão excessiva ou tristeza).
+
+    O Crescimento da Casa Verde
+
+        A população de Itaguaí fica alarmada com o aumento de internações, incluindo figuras importantes da cidade.
+
+        Uma revolta popular tenta fechar o manicômio, mas Bacamarte os convence com argumentos "científicos".
+
+    A Grande Virada
+
+        Após analisar estatísticas, Bacamarte conclui que a verdadeira loucura está naqueles que ele considerava sãos (os moderados).
+
+        Ele liberta os internos e prende os "cidadãos normais", incluindo o barbeiro Porfírio (que liderou a revolta).
+
+    O Fim Iônico
+
+        Bacamarte encerra seu estudo declarando que a sanidade perfeita não existe e se interna na Casa Verde, tornando-se seu último paciente.
+
+Temas Principais
+
+    A Ciência como Poder Arbitrário – Bacamarte representa a arrogância científica que classifica a loucura de forma autoritária.
+
+    A Falsa Razão – Machado critica a ideia de que a ciência é sempre neutra e objetiva.
+
+    A Sociedade e a Normatização – A história satiriza como a sociedade define "normalidade" e marginaliza quem foge dela.
+
+Frases Marcantes
+
+    "A ciência é a verdade; mas a verdade nem sempre é a ciência."
+
+    "A loucura, era a regra; a sabedoria, exceção."
+
+Conclusão
+
+"O Alienista" é uma crítica mordaz ao autoritarismo científico, à hipocrisia social e à loucura disfarçada de razão. Machado de Assis usa o humor e a ironia para questionar quem realmente são os "loucos" em uma sociedade cheia de contradições.
+
+🔍 Leitura Recomendada: Se gostou, explore outros contos machadianos como "O Espelho" ou "A Cartomante" para mais análises psicológicas e sociais.
+Analise a letra de outo de tolo de raul Seixas e relacione com ufologia
+Análise da Letra de "Ouro de Tolo" (Raul Seixas) e sua Relação com a Ufologia
+
+Música: Ouro de Tolo (1973) – Álbum: Krig-Ha, Bandolo!
+Autor: Raul Seixas e Paulo Coelho
+1. A Letra e seu Contexto
+
+A música é uma crítica à busca por riquezas materiais e convenções sociais, usando a metáfora do "ouro de tolo" (pirita, um mineral que parece ouro, mas não tem valor real). Raul contrasta essa ilusão com a liberdade de ser "metamorfose ambulante" – alguém em constante transformação.
+Trechos-chave:
+
+    "Eu prefiro ser / Essa metamorfose ambulante / Do que ter aquela velha opinião formada sobre tudo"
+
+    "Eu vou desencanar / E pegar estrada / Vou me livrar desse ouro de tolo / Que me deixou / Com os pés no chão"
+
+2. Conexão com a Ufologia e o Pensamento de Raul Seixas
+a) Libertação do Sistema e a Busca por Outras Realidades
+
+Raul frequentemente abordava temas como viagens interdimensionais, vida extraterrestre e expansão da consciência. Em Ouro de Tolo, a ideia de "pegar estrada" pode simbolizar:
+
+    Uma viagem cósmica (como em "S.O.S. UFO" ou "Eu Sou Egoísta").
+
+    A rejeição ao materialismo (o "ouro de tolo" como metáfora das ilusões humanas, enquanto o "verdadeiro ouro" estaria em outras dimensões ou planetas).
+
+b) Metamorfose e Identidade Extraterrestre
+
+A "metamorfose ambulante" remete à:
+
+    Mudança de estado de consciência (como em experiências de contato com ETs ou viagens astrais).
+
+    A ideia de Raul como um "alienígena" – ele mesmo brincava com essa imagem ("Eu vim de outro planeta" em Eu Sou Egoísta).
+
+c) Crítica à Ciência Convencional
+
+Assim como a ufologia desafia a visão tradicional da ciência, Raul critica o conformismo:
+
+    "Ter aquela velha opinião formada sobre tudo" → alusão ao ceticismo rígido que rejeita fenômenos inexplicáveis (como UFOs).
+
+    O "ouro de tolo" pode representar a ciência materialista que ignora mistérios cósmicos.
+
+3. Paralelos com Ideias Ufológicas
+
+    Viagem Interdimensional
+
+        Raul via a música como um "disco voador" (em Aluga-se), e Ouro de Tolo fala de escapar da gravidade do mundo material – assim como relatos de abduções ou contatos com ETs.
+
+    Contato com Inteligências Superiores
+
+        A letra ecoa a noção de que a verdadeira sabedoria está além da Terra (como em teorias ufológicas sobre civilizações avançadas).
+
+    Despertar da Consciência
+
+        A ufologia muitas vezes fala em "expansão mental" pós-contato com ETs – algo que se alinha com a metamorfose proposta por Raul.
+
+4. Conclusão: Raul, o "ET Filosófico"
+
+Ouro de Tolo não menciona UFOs diretamente, mas sua mensagem de libertação e transformação se conecta com:
+
+    A rejeição ao sistema (como ufólogos que desafiam a narrativa oficial).
+
+    A busca por verdades cósmicas (a ideia de que "o ouro real" está além da Terra).
+
+Raul, em suas outras músicas, deixa claro seu fascínio por vida extraterrestre, mas aqui ele fala simbólica e filosoficamente – como um "ET da mente" que nos convida a sair da caverna do materialismo.
+
+🎶 Frase Final:
+"Vou me livrar desse ouro de tolo" → Talvez o maior "disco voador" seja a própria consciência libertada. 👽
+
+
+
+
+2525 by Zager & Evan 1969
+
+No ano 2525, se o homem ainda estiver vivo
+In the year 2525, if man is still alive
+
+Se a mulher conseguir sobreviver, ela poderá descobrir
+If woman can survive, they may find
+
+No ano 3535
+In the year 3535
+
+Não vou precisar dizer a verdade, não minta
+Ain't gonna need to tell the truth, tell no lie
+
+Tudo o que você pensa, faz e diz
+Everything you think, do and say
+
+Está na pílula que você tomou hoje
+Is in the pill you took today
+
+No ano 4545
+In the year 4545
+
+Você não vai precisar dos seus dentes, não vai precisar dos seus olhos
+You ain't gonna need your teeth, won't need your eyes
+
+Você não encontrará nada para mastigar
+You won't find a thing to chew
+
+Ninguém vai olhar para você
+Nobody's gonna look at you
+
+No ano 5555
+In the year 5555
+
+Seus braços estão flácidos ao seu lado
+Your arms hangin' limp at your sides
+
+Suas pernas não têm nada para fazer
+Your legs got nothin' to do
+
+Alguma máquina está fazendo isso por você
+Some machine's doin' that for you
+
+No ano 6565
+In the year 6565
+
+Você não precisará de marido, não precisará de esposa
+You won't need no husband, won't need no wife
+
+Você escolherá seu filho, escolha sua filha também
+You'll pick your son, pick your daughter too
+
+Do fundo de um longo tubo de vidro
+From the bottom of a long glass tube
+
+No ano 7510
+In the year 7510
+
+Se Deus está vindo, Ele deveria chegar até lá
+If God's a coming, He oughta make it by then
+
+Talvez Ele olhe em volta e diga
+Maybe He'll look around Himself and say
+
+Acho que é hora do dia do julgamento
+Guess it's time for the judgment day
+
+No ano 8510
+In the year 8510
+
+Deus vai balançar Sua cabeça poderosa
+God is gonna shake His mighty head
+
+Ele dirá que estou satisfeito onde o homem esteve
+He'll either say I'm pleased where man has been
+
+Ou derrubá-lo e começar de novo
+Or tear it down, and start again
+No ano 9595
+In the year 9595
+
+Estou me perguntando se o homem vai estar vivo
+I'm kinda wonderin' if man is gonna be alive
+
+Ele levou tudo que esta velha terra pode dar
+He's taken everything this old earth can give
+
+E ele não devolveu nada
+And he ain't put back nothing
+Agora já se passaram dez mil anos
+Now it's been ten thousand years
+
+O homem chorou um bilhão de lágrimas
+Man has cried a billion tears
+
+Para quê, ele nunca soube, agora o reinado do homem acabou
+For what, he never knew, now man's reign is through
+
+Mas durante a noite eterna, o brilho da luz das estrelas
+But through eternal night, the twinkling of starlight
+
+Tão longe, talvez seja ontem
+So very far away, maybe it's only yesterday
+No ano 2525, se o homem ainda estiver vivo
+In the year 2525, if man is still alive
+
+Se a mulher conseguir sobreviver, ela poderá descobrir
+If woman can survive, they may find
+
+
+
+
 
 https://crmpb.org.br/programas/humanizacao/historico-cronicas-terapeuticas/vigiado-por-extraterrestres
+
+PINK FLOYD 1 1967 Astronomy Domine
+Letras
+Lime and limpid green, a second scene
+Now fights between the blue you once knew
+Floating down, the sound resounds
+Around the icy waters underground
+Jupiter and Saturn, Oberon, Miranda and Titania
+Neptune, Titan, stars can frighten
+Blinding signs flap,
+Flicker, flicker, flicker blam, pow, pow
+Stairway scare, Dan Dare, who's there?
+Lime and limpid green, the sounds around
+The icy waters under
+Lime and limpid green, the sounds around
+The icy waters underground
+
 
 
 Eduardo Miranda -  Férias no Tibet: uma aventura no Mundo dos Mortos

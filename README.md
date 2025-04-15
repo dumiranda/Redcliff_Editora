@@ -2,6 +2,24 @@
 
 # Redcliff_Editora
 
+Este momento sagrado só pode ser descrito como “extático” porque sua conexão com a vida se expande significativamente.
+Neste profundo estado de ser, você sente que a vida é cheia de beleza e sacralidade - embora esse sentimento não seja subjetivo, mas sim um fenômeno objetivo que está fora do seu, eu pessoal. O teólogo Rudolf Otto, chamou essa experiência de "numinosa". Mas neste vídeo, vamos nos referir a isso como a experiência mística.
+
+
+
+Thomas Merton (1915-1968) fue un destacado místico y escritor estadounidense, conocido por su amplio bagaje artístico y cultural, así como por su espíritu aventurero. Tras su paulatina pero profunda conversión a la fe católica, Merton ingresó en la Orden Cisterciense, llegando a ser uno de los principales pensadores de la mística católica en la segunda mitad del siglo XX. 
+
+A pesar de su prematura muerte, dejó un legado de obras de espiritualidad que hasta hoy siguen ejerciendo una importante influencia no sólo entre muchos católicos, sino entre personas de diversa proveniencia filosófica, religiosa y cultural.
+
+Su autobiografía La montaña de los siete círculos, publicada en 1948, es una encantadora obra que nos revela el duro y largo trayecto que siguió Merton hasta llegar a la Iglesia católica, en formas insospechadas como conmovedoras. A través de una fina prosa y unas reflexiones evocadoras, su autor nos muestra cómo Dios actúa de formas misteriosas para atraer a las almas hacia su sublime presencia, inclusive a aquellas más desafiantes.
+
+Es una obra que vale la pena leer y conocer, pues nos muestra no sólo la vitalidad de la espiritualidad católica, sino también cómo el Señor sigue presente en el acelerado y desencantado mundo de hoy en día.
+
+
+
+
+
+
 In The Year 2525 - COVID Massive LOCKDOWN- music video clip in 2020
 https://www.youtube.com/watch?v=JNbUUSuiEho
 

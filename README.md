@@ -2,6 +2,17 @@
 
 # Redcliff_Editora
 
+A experiência mística na Antropologia de Edith Stein
+https://www.youtube.com/watch?v=Lh32V4tH6_E
+
+
+La palabra "advaita" en sánscrito significa «no dualidad», en el sentido de que en un nivel muy profundo no existe separación entre nosotros y la realidad. Para comprehender esta visión trascendente es fundamental practicar la meditación y la autoindagación. Y es que basta un destello de iluminación para darse cuenta de que el "yo" es una ilusión, un constructo mental tejido a base de creencias y pensamientos. En esta conferencia, Borja Vilaseca comparte claves para iniciarse en esta filosofía oriental y vivir más en paz con uno mismo.
+
+Malabarismos intelectuais
+
+
+
+
 Este momento sagrado só pode ser descrito como “extático” porque sua conexão com a vida se expande significativamente.
 Neste profundo estado de ser, você sente que a vida é cheia de beleza e sacralidade - embora esse sentimento não seja subjetivo, mas sim um fenômeno objetivo que está fora do seu, eu pessoal. O teólogo Rudolf Otto, chamou essa experiência de "numinosa". Mas neste vídeo, vamos nos referir a isso como a experiência mística.
 

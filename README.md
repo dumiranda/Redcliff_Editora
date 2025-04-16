@@ -2,6 +2,15 @@
 
 # Redcliff_Editora
 
+A expressão "TẤT TẦN TẬT VỀ SHŌGUN" é em vietnamita e significa algo como "Tudo sobre o Shōgun" ou "Todas as informações sobre o Shōgun" em português.
+Explicação detalhada:
+    "Tất tần tật" (一切) é uma expressão coloquial no vietnamita que significa "tudo", "completamente", "todos os detalhes".
+    "Về" significa "sobre".
+    "Shōgun" (将軍) refere-se ao título militar histórico do Japão, equivalente a um comandante supremo ou ditador militar no período feudal.
+
+    
+TAT TAN TAT VE BUDDHA
+
 A experiência mística na Antropologia de Edith Stein
 https://www.youtube.com/watch?v=Lh32V4tH6_E
 

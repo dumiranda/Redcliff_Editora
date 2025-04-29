@@ -3,6 +3,7 @@
 
 
 
+
 # Redcliff_Editora
 
 A expressão "TẤT TẦN TẬT VỀ SHŌGUN" é em vietnamita e significa algo como "Tudo sobre o Shōgun" ou "Todas as informações sobre o Shōgun" em português.

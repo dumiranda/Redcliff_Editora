@@ -6,6 +6,32 @@
 
 # Redcliff_Editora
 
+Título: O Pequeno Príncipe
+Autor: Antoine de Saint
+Instituição: Virtual Books
+Ano: 1943 – 1ª Edição
+Nº de Páginas: 070
+Tipo: Livro Digital
+Formato: .pdf
+Licença: Domínio Público 
+
+escrição 
+Publicado pela primeira vez em 1942 nos Estados Unidos e, três anos mais tarde, na França, O pequeno príncipe tornou-se obra de apelo universal, um clássico moderno traduzido para mais de oitenta idiomas.
+
+Suas páginas abrigam valiosas lições sobre a solidão, a amizade, o tempo, a vida e a morte, compartilhadas conosco por meio do pequeno habitante do asteroide B 612. Apesar de escrito e narrado por um adulto, O pequeno príncipe se dirige, desde suas primeiras linhas, às crianças.
+
+É, na verdade, uma ode à infância, uma delicada viagem a esse planeta que aos poucos abandonamos, vivendo em prol das nossas vaidades, vícios, obrigações, números e demais coisas “sérias e importantes”.
+
+Deixe-se conquistar pela fábula atemporal de Antoine de Saint-Exupéry e acompanhe o pequeno príncipe em sua jornada rumo ao nosso planeta. Lembre-se apenas de fechar um pouco os olhos e abrir bem o coração.
+
+Pois o essencial, como nos têm ensinado o pequeno príncipe e sua amiga raposa, por mais de setenta anos, é invisível aos olhos.
+
+
+
+
+
+
+
 A expressão "TẤT TẦN TẬT VỀ SHŌGUN" é em vietnamita e significa algo como "Tudo sobre o Shōgun" ou "Todas as informações sobre o Shōgun" em português.
 Explicação detalhada:
     "Tất tần tật" (一切) é uma expressão coloquial no vietnamita que significa "tudo", "completamente", "todos os detalhes".

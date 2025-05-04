@@ -1,5 +1,8 @@
 
 
+A OBRA ESOTÉRICA DESCONHECIDA DE GUIMARÃES ROSA
+https://www.youtube.com/watch?v=ITBxNnkDNUM
+
 
 
 

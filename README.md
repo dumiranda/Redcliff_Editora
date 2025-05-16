@@ -1,5 +1,164 @@
 
 
+
+
+
+
+# Redcliff_Editora
+
+
+Para Zita
+
+Fungos
+
+Inteligência dos Fungos: Como Resolvem Labirintos Melhor Que Algoritmos e Enganam Nosso Corpo?
+https://www.youtube.com/watch?v=2hclr02qAzE
+
+Evolução Fúngica: Como as amebas ajudaram a selecionar fungos mais patogênicos para nós animais?
+https://www.youtube.com/watch?v=65E1JNRjsTI
+
+Fungos Podem Ser Inteligentes? A Inteligência Invisível: Fungos e o Segredo da Consciência
+https://www.youtube.com/watch?v=kYW5ERcAY14
+
+A potente habilidade do fungo Cryptococcus para burlar o sistema imune humano
+https://www.youtube.com/watch?v=DtD3361OxTY
+
+Evolução fúngica: Como a nossa febre é uma aliada no combate as doenças fúngicas?
+https://www.youtube.com/watch?v=kI2qR0L9sQY
+
+Doenças fúngicas: Uma ameaça global desconhecida?
+https://www.youtube.com/watch?v=GG1Nwsei_EM
+
+A ameaça das doenças fúngicas nos animais e plantas | Eterna Busca
+https://www.youtube.com/watch?v=xcGJdH2lIlc
+
+As muitas propriedades medicinais do fungo Cordyceps | Eterna Busca
+https://www.youtube.com/watch?v=VqDCpvb2nRU
+
+O fungo real que deu origem a The last of Us: Os fungos Cordyceps | Eterna Busca
+https://www.youtube.com/watch?v=fLAKZJfaI3w
+
+A história dos cogumelos: os cogumelos comestíveis e o perigo dos cogumelos tóxicos! | Eterna Busca
+https://www.youtube.com/watch?v=m9nh3zLNAEs
+
+Lógica
+
+Evolução do Altruísmo: O Dilema do Prisioneiro e a Teoria dos Jogos | Eterna Busca
+https://www.youtube.com/watch?v=6M3rTZIIrsk
+
+
+
+
+Animais
+
+Pensamento animal: Animais conseguem pensar no futuro?
+https://www.youtube.com/watch?v=pc9mnEUB80g
+
+Evolução dos piolhos: Como os piolhos também contam a história humana?
+https://www.youtube.com/watch?v=kLU7MaF9jBk
+
+Evolução dos animais: Como funciona a árvore da vida animal e qual o nosso parentesco com fungos?
+https://www.youtube.com/watch?v=4jNukOozwZE
+
+Evolução da cognição animal: a inteligência social e a inteligência ecológica | Eterna Busca
+https://www.youtube.com/watch?v=Q25VEDBTc3g
+
+3 tipos de parasitas: Os parasitas zumbis dos insetos e o toxoplasma nos humanos | Eterna Busca
+https://www.youtube.com/watch?v=-LaA45r9rL4
+
+Segredos da cultura: como funcionam as sociedades animais e suas culturas | Eterna Busca
+https://www.youtube.com/watch?v=97Ped7J59XY
+
+O estranho jeito de sonhar dos animais! Como é o sonho do ornitorrinco, do elefante e das baleias?
+https://www.youtube.com/watch?v=LDuirEd7co0
+
+Os animais sabem usar plantas medicinais quando estão doentes? E nós aprendemos com eles?
+https://www.youtube.com/watch?v=GRBZfncn_2A
+Zoofarmocognosia
+
+Curiosidade animal: Por que animais são tão venenosos? | Eterna Busca
+https://www.youtube.com/watch?v=ZqEFDI63y3s
+
+Significado dos sonhos: Por que não sonhamos que estamos escrevendo ou lendo? | Eterna Busca
+https://www.youtube.com/watch?v=sUdwpjX8cVs
+
+Evolução do sonho: 5 explicações do por que sonhamos | Eterna Busca
+https://www.youtube.com/watch?v=KJRN2QSbck8
+
+Evolução do sono: dinossauros dormiam? | Eterna Busca
+https://www.youtube.com/watch?v=sonCON7ylr4
+
+CUIDADO: A história oculta das doenças | Eterna Busca
+https://www.youtube.com/watch?v=natDTEkVKzk
+
+Coisas que você provavelmente não sabia sobre os vírus | Eterna Busca
+https://www.youtube.com/watch?v=KIf1EUIZfl0
+
+
+Plantas
+
+Plantas medicinais, tudo o que você precisa saber sobre elas| Eterna Busca
+https://www.youtube.com/watch?v=P4e4Czse4Lo
+
+Os segredos por trás da biologia da maravilhosa flor de lótus | Eterna Busca
+https://www.youtube.com/watch?v=HD8Vd8CZNe4
+
+Manga: De presente de reis ao mito “manga com leite faz mal” | Eterna Busca
+https://www.youtube.com/watch?v=6GdgsZH_lAc
+
+Plantas tóxicas: o que acontece se você comer uma comigo ninguém pode? | Eterna Busca
+https://www.youtube.com/watch?v=pV0u_HBZq5Q
+
+UIDADO! Sementes de maçãs são bastante tóxicas e podem causar envenenamentos!
+https://www.youtube.com/watch?v=YWLC-lJfiqg
+
+Artemisia: A Planta Poderosa Que Ganhou o Nobel de Medicina e Inspirou Lendas
+https://www.youtube.com/watch?v=kra6MvV1_jw
+
+O segredo da Mandioca: Entre a Medicina Natural e o Perigo Letal – O que Você Precisa Saber!
+https://www.youtube.com/watch?v=8xhCDuomys4
+
+Os segredos da mandioca: a riqueza de uma das raízes mais importantes do mundo!
+https://www.youtube.com/watch?v=gKksSL5QhGM
+
+A história das intrigas do café, desde sua descoberta até os dias de hoje | Eterna Busca
+https://www.youtube.com/watch?v=u-gZZtmNg20
+
+
+
+Organismo humano
+
+Cérebros sem Neurônios? Como Fungos e Bactérias Tomam Decisões?!
+https://www.youtube.com/watch?v=BWFuDVRYXi8
+
+Existe câncer no coração? O que as células do coração possuem de especial para evitar o câncer?
+https://www.youtube.com/watch?v=skV-NXbhmhM
+
+Qual a função das axilas na atração sexual? E porque as axilas podem cheirar mal? | Eterna Busca
+https://www.youtube.com/watch?v=UPNGImb4ry0
+
+Como a testosterona afeta o comportamento? Ela realmente nos deixa agressivos?
+https://www.youtube.com/watch?v=qXvZY_i1Wa0
+
+Qual a função da testosterona? Qual a diferença da testosterona em machos e fêmeas?
+https://www.youtube.com/watch?v=t5fpI1bpsdA
+
+O segredo do porquê animais viverem menos que as plantas: as fibrilas amiloides | Eterna Busca
+https://www.youtube.com/watch?v=UO3sIsNguI0
+
+Evolução da senescência: Por que envelhecemos? É possível viver para sempre? | Eterna Busca
+https://www.youtube.com/watch?v=X4oJfyshYi0
+
+Anatomia do olfato: porque sentir cheiros é tão importante? | Eterna Busca
+https://www.youtube.com/watch?v=lckzEoxWe34
+
+História do leite: Porque muita gente tem intolerância a lactose? | Eterna Busca
+https://www.youtube.com/watch?v=LslnlHZBAQY
+
+
+
+============================
+
 A OBRA ESOTÉRICA DESCONHECIDA DE GUIMARÃES ROSA
 https://www.youtube.com/watch?v=ITBxNnkDNUM
 
@@ -7,7 +166,7 @@ https://www.youtube.com/watch?v=ITBxNnkDNUM
 
 
 
-# Redcliff_Editora
+
 
 Título: O Pequeno Príncipe
 Autor: Antoine de Saint

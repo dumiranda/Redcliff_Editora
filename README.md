@@ -6,8 +6,73 @@
 
 # Redcliff_Editora
 
+Pedagogia Baseada em Evidências (com Joana Assunção| UG#88)
+https://www.youtube.com/watch?v=Xa3vKKq3mSA
+
+Alfabetização Científica (com Bruno Montoro | UG#67)
+https://www.youtube.com/watch?v=T5F21nmtST4
+
+Filosofia da Argumentação (com Elan Marinho | UG#78)
+https://www.youtube.com/watch?v=YvtEIMnejEc
+
+Evolução da Musicalidade Humana (com Marco Antonio Correa Varella | UG#75)
+https://www.youtube.com/watch?v=L6s5ljTppsQ
+
+#55 - Treinamento Físico pelo Prisma Evolutivo (com Daniel A. Boullosa)
+https://www.youtube.com/watch?v=wnBvgDd7yWo
+
+#12 - Corrida e Evolução Humana
+https://www.youtube.com/watch?v=AYQuARaS6DU
+
+#05 - Envelhecer na atualidade
+https://www.youtube.com/watch?v=_YTIKrQbCk8
+
+#37 - Ateísmo, religião e comportamento (com Daniel Gontijo)
+https://www.youtube.com/watch?v=27yXqNST2JE
+
+#13 - Religião e o seu papel na nossa espécie
+https://www.youtube.com/watch?v=JolH8c4_6uw
+
+#34 - Meditação e controle emocional (com Elisa Kozasa)
+https://www.youtube.com/watch?v=CMgBjaKJIQY
+
+#33 - A importância do sono (com Vânia D´Almeida)
+https://www.youtube.com/watch?v=3jS3rvuvnzM
+
+#29 - Ergonomia: ambiente de trabalho para humanos (com fisioterapeutas)
+https://www.youtube.com/watch?v=3-6ghOYzJzQ
+
+
+
+
+
 
 Para Zita
+
+#56 - Origem da Vida (com Dimas Augusto Morozin Zaia)
+https://www.youtube.com/watch?v=9Y9nulB8ou0
+
+#30 - O Dissidente: ciência e evolução com Ricardo Lopes
+https://www.youtube.com/watch?v=OYXUD4Rz01I
+
+#25 - Psicologia Evolucionista (com Marco Antonio Correa Varella)
+https://www.youtube.com/watch?v=cx36DqbIVpI
+
+#24 - Medicina e Evolução (com Alexandre Archanjo Ferraro)
+https://www.youtube.com/watch?v=s0naSDliTYA
+
+
+O Fantástico Mundo da Micologia: microfungos e cogumelos (com Jadson Bezerra | UG#64‬)
+https://www.youtube.com/watch?v=kKE_kW6g9VQ
+
+Psicologia Evolucionista e a Percepção Humana Frente às Mudanças Climáticas (Mauro SIlva Júnior)
+https://www.youtube.com/watch?v=vK1xdcLFY9c
+
+O Impacto da Fragmentação de Habitats na Biodiversidade (Thiago Gonçalves-Souza)
+https://www.youtube.com/watch?v=LhpZ7japQdM
+
+Microbiota: Importância, Disfunções e Intervenções (com Christian Hoffmann | UG#91)
+https://www.youtube.com/watch?v=7U1KlJlT4DI
 
 Fungos
 
